@@ -4,6 +4,6 @@ The Main Face or the HoneyComb has 7 of the most valuble internet companies comb
 The Diamond face has sections that will be sold at NFT-land, until they develop into its own Metaverse Nation. 
 The Bee top left corner symbolicly represent if your software is in Work Mode or Pleasure Mode
 the Recycle bin bottom right is for my current business: Refubrishing and Recycling Portable electronics.
-top Center is our own wallet where we hope XRPL to regulate it or any company that is capable of. 
+top Center is our own wallet regulated by the XRPL or any company that is capable of that.
 3 lines top right corner opens the App Menu containing profile, settings, messeges etc... 
-Every Monetary transaction will be done by crypto 1st and thru our own wallet, where I hope XRPL can come benefica both ways. 
+Every Monetary transaction will be done by crypto 1st and thru our own wallet, where I hope XRPL can come benefical both ways. 
